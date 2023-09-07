@@ -1,5 +1,3 @@
-Chapter 6: Creating a Culture of Creativity and Innovation
-==========================================================
 
 Techniques for Creating a Culture that Fosters Creativity and Innovation
 ------------------------------------------------------------------------

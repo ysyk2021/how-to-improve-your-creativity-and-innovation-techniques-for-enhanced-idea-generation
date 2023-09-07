@@ -33,3 +33,4 @@
   - [The Benefits of Incorporating Play and Exploration in Encouraging Creativity and Innovation](chapter-8-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)

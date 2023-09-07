@@ -1,5 +1,3 @@
-Chapter 9: Conclusion
-=====================
 
 In this book, we have explored various techniques and strategies for enhancing creativity and innovation skills. From brainstorming and mind mapping to lateral thinking and design thinking, we have discussed methods that can help individuals and organizations generate more and better ideas.
 

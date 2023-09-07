@@ -1,5 +1,3 @@
-Chapter 2: Overcoming Creative Blocks and Resistance
-====================================================
 
 Creative blocks and resistance can hinder idea generation and impede the creative process. In this chapter, we will explore techniques for identifying and overcoming creative blocks and resistance, strategies for building self-awareness and developing a growth mindset, and the benefits of overcoming creative blocks and resistance in encouraging personal and professional growth.
 

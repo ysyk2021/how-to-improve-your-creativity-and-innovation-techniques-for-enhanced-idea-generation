@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Defining Creativity and Innovation and Their Importance in Personal and Professional Development
 ------------------------------------------------------------------------------------------------
