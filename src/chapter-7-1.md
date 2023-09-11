@@ -1,5 +1,4 @@
-Chapter 15: Techniques for Overcoming Fear of Failure and Embracing Risk-Taking
-===============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Overcoming the fear of failure and embracing risk-taking are essential aspects of nurturing creativity and fostering innovation. In this chapter, we will explore techniques to help you conquer these fears, allowing you to generate ideas more freely and take innovative risks with confidence.
 

@@ -1,5 +1,4 @@
-Chapter 16: Strategies for Building Resilience and Managing Setbacks
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Resilience is a critical skill in the world of creativity and innovation, where setbacks are a natural part of the journey. In this chapter, we will explore strategies to help you build resilience and effectively manage setbacks, ensuring that they don't hinder your pursuit of enhanced idea generation.
 

@@ -1,5 +1,4 @@
-Chapter 21: The Benefits of Incorporating Play and Exploration in Encouraging Creativity and Innovation
-=======================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of creativity and innovation, embracing the spirit of play and exploration can be a powerful catalyst. In this chapter, we will delve into the numerous advantages of incorporating playfulness and exploration into your creative process, highlighting how these elements foster a fertile ground for groundbreaking ideas and innovative thinking.
 

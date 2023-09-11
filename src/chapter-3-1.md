@@ -1,5 +1,4 @@
-Chapter 20: Techniques for Stimulating Idea Generation and Cultivating Creativity
-=================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Unlocking your creative potential and fostering innovative thinking requires specific techniques and strategies. In this chapter, we will explore a range of techniques to stimulate idea generation and cultivate creativity, empowering you to become a more imaginative and innovative thinker.
 

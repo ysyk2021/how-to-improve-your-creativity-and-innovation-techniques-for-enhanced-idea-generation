@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Building Positive Work Environments and Encouraging Learning and Development
-======================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating a positive work environment that fosters creativity and innovation is essential for enhancing idea generation. In this chapter, we'll explore strategies to cultivate a workplace culture that supports learning, development, and the free flow of innovative ideas.
 

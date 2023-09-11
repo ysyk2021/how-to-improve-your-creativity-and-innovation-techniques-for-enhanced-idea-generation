@@ -1,5 +1,4 @@
-Chapter 18: Techniques for Managing and Implementing Ideas for Successful Outcomes
-==================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Generating creative ideas is only the beginning; the real value lies in effectively managing and implementing those ideas to achieve successful outcomes. In this chapter, we will explore essential techniques for turning your creative concepts into tangible and impactful results.
 

@@ -1,5 +1,4 @@
-Chapter 11: Strategies for Collaborating and Receiving Feedback
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective collaboration and constructive feedback are essential components of the creative and innovative process. In this chapter, we will explore strategies to facilitate collaboration and make the most of feedback in your journey towards enhanced idea generation.
 

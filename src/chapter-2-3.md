@@ -1,5 +1,4 @@
-Chapter 12: The Benefits of Overcoming Creative Blocks and Resistance in Encouraging Personal and Professional Growth
-=====================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Overcoming creative blocks and resistance is a crucial aspect of nurturing creativity and fostering innovation. In this chapter, we will delve into the numerous advantages of surmounting these challenges, both in your personal and professional growth journey.
 

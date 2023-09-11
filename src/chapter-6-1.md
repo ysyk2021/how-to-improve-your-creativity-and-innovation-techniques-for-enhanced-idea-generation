@@ -1,5 +1,4 @@
-Chapter 9: Techniques for Creating a Culture that Fosters Creativity and Innovation
-===================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building a culture that nurtures creativity and innovation is fundamental to an organization's long-term success. In this chapter, we will explore techniques and strategies to cultivate an environment where creativity thrives and innovative ideas flourish.
 

@@ -1,5 +1,4 @@
-Chapter 8: The Benefits of Creating a Culture of Creativity and Innovation in Encouraging Organizational Growth and Success
-===========================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 A culture of creativity and innovation is not just a buzzword; it's a strategic imperative for organizations seeking sustained growth and success. In this chapter, we will delve into the numerous advantages of fostering a creative and innovative workplace environment.
 

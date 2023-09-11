@@ -1,5 +1,4 @@
-Chapter 22: Techniques for Incorporating Play and Exploration into Daily Life
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Incorporating play and exploration into your daily routine is essential for nurturing creativity and innovation. This chapter explores practical techniques to infuse your life with the spirit of play and curiosity, fostering a more innovative mindset and enhancing your overall well-being.
 

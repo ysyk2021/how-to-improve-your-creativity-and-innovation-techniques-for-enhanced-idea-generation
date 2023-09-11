@@ -1,5 +1,4 @@
-Chapter 13: Strategies for Building Self-Awareness and Developing a Growth Mindset
-==================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Self-awareness and a growth mindset are foundational to nurturing creativity and fostering innovation. In this chapter, we will explore strategies to help you cultivate these vital qualities, empowering you in your quest for enhanced idea generation.
 
